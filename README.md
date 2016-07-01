@@ -1,1 +1,1 @@
-# numerals of North, Central and South America
+# Numerals of North, Central and South America
